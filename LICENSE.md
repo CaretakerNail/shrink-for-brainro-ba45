@@ -1,4 +1,4 @@
-
+shrink for brainrots premium Script is the best shrink for brainrots Script, featuring auto-heal and auto-sell. Safe and powerful for all your needs.
 
 
 
